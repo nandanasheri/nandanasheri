@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nandanasheri
-- 👀 I’m interested in having a good time not a long time
+- 👀 Looking forward to learning just about anything 
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me @nah.ndana
